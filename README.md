@@ -13,11 +13,12 @@ codes like
 
 
 
+do it i will appriciate
 
 
 
-
-
+# Support server
+discord.gg/devs
 
 
 
