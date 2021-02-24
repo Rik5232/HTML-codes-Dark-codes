@@ -1,0 +1,1 @@
+All rights to colorib 
