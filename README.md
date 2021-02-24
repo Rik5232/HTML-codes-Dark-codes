@@ -5,7 +5,7 @@ These are all the html codes im uploading on discord.gg/devs
 # What does this include
 **Html codes!**
 codes like
-`buttons` - Nice buttons templates
+Actually nothing much lol
 `404 page` - 404 pages  
 `Soon more!` - nice more codes soon
 
