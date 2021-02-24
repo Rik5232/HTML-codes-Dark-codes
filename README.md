@@ -21,7 +21,9 @@ do it i will appriciate
 discord.gg/devs
 
 
-
+# 404 examples
+https://prnt.sc/105pumk
+https://prnt.sc/105pzf0
 
 
 #lisence
